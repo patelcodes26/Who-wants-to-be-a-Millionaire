@@ -36,4 +36,4 @@
 
 ## Contact
 
-If you have any questions or want to contribute, please email at apcodes7@gmail.com
+If you have any questions or would like to contribute, please email me at apcodes7@gmail.com
